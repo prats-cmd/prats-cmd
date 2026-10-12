@@ -1,5 +1,5 @@
 # 💫 About Me:
-Marketing Operations Enthusiast | Building tech-driven solutions | Hackathons, AI & Automation | Always learning, always shipping.
+Business Analyst | Marketing Operations Enthusiast | Building tech-driven solutions | Hackathons, AI & Automation | Always learning, always shipping.
 
 
 ## 🌐 Socials:
